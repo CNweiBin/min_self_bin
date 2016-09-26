@@ -1,1 +1,1 @@
-# min_self_bin
+# min_self_bin  lalalallala   you  have  
